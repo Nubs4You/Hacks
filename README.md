@@ -1,6 +1,5 @@
 # Hacks
-used for things and games
-taken from others and from own
-please have fun and use
-updated min once per month, usually once per week
-thanks
+They are used for things and games.
+Some are taken from others and some from my own.
+Please have fun and use them. 
+They are updated min once per month, usually once per week.
