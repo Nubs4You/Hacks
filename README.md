@@ -1,5 +1,6 @@
 # Hacks
-They are used for things and games.
-Some are taken from others and some from my own.
-Please have fun and use them. 
-They are updated min once per month, usually once per week.
+These are for games, mostly for blooket.
+
+If you get banned, I will not take responsibility. Please note that these are against Blooket's rules.
+
+If you are in trouble because you used them, just know that I am warning you now. You can risk it if you would like to.
